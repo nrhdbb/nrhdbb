@@ -9,10 +9,6 @@
 <br/>
 
 <div align="center">
- 
- 🔭 I’m currently working on **a marketplace**
- 
- 🌱 I’m currently learning **Docker, Supabase, AWS**
 
 💬 JOIN **SERVER FIVEM IKN NUSANTARA V [here](https://discord.gg/j3xVa7eEdn)**
 

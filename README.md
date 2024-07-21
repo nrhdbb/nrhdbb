@@ -14,7 +14,7 @@
  
  🌱 I’m currently learning **Docker, Supabase, AWS**
 
-💬 JOIN **SERVER FIVEM [here]()**
+💬 JOIN **SERVER FIVEM IKN NUSANTARA V [here](https://discord.gg/j3xVa7eEdn)**
 
 ⚡ Fun fact **Game of Thrones Night's Watch cloaks are made from Ikea rugs**
 

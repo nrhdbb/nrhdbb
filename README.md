@@ -12,8 +12,6 @@
 
 💬 JOIN **SERVER FIVEM IKN NUSANTARA V [here](https://discord.gg/j3xVa7eEdn)**
 
-⚡ Fun fact **Game of Thrones Night's Watch cloaks are made from Ikea rugs**
-
  </div>
  
 <div align="center"> 
